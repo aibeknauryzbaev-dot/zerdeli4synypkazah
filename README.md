@@ -1,0 +1,2 @@
+# zerdeli4synypkazah
+zerdeli
